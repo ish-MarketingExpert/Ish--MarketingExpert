@@ -14,7 +14,7 @@ Welcome to my GitHub profile! I'm a seasoned sales and marketing expert with ove
 ### 🌐 Connect with Me
 - **Website**: [AppointmentSettings.com](https://appointmentsettings.com)
 - **LinkedIn**: [Ish on LinkedIn](https://www.linkedin.com/in/ishtiyaqlone/)
-- **Email**: [YourEmail@example.com](mailto:YourEmail@example.com)
+- **Email**: [YourEmail@example.com](mailto:ishh@appointmentsettings.com)
 
 ---
 
